@@ -1,5 +1,5 @@
 # Ingredients
-
+Let's begin!
 1 large brown onion, diced
 2 spring onions, thinly sliced
 2 large carrots, diced
@@ -12,3 +12,4 @@
 410g can creamed corn
 425g can cannellini beans, drained
 240g dried thick egg noodles rougly broken
+Enjoy my Recipe!
